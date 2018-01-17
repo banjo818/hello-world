@@ -1,2 +1,5 @@
 # hello-world
-The beginning of something
+
+So Yeah...
+
+Wondering through the foggy, pale blue existence. 
